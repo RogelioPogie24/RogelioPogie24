@@ -1,8 +1,9 @@
 - 👋 Hi, I’m @RogelioPogie24
 - 👀 I’m interested in Handsome
-as IT Student- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on partner
-Just call my number- 09515820703 📫 How to reach me email me at kit.pogie@gmail.com
+- 🌱 I’m currently learning as an IT Student
+- 💞️ I’m looking to collaborate on any partner
+- Just call my number- 09515820703
+- 📫 How to reach me just email me at kit.pogie@gmail.com
 - Pronouns: He/Him
 - ⚡ Fun fact: Everyday Horny
 
